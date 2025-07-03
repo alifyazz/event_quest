@@ -6,4 +6,4 @@
    ![image](https://github.com/user-attachments/assets/59113422-24ce-426e-84a8-500c0be148bb)
 
 3. Klik ajukan sidang, nanti akan muncul kapan jadwal sidang kamu
-4. SEMANGAT!!
+   SEMANGAT SEMOGA LANCAR SIDANGNYA!!
